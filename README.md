@@ -140,7 +140,6 @@ Visualizations and pivot tables were used to guide strategic recommendations for
 
 **Obiekezie Precious Chinaza**  
 _First-Class Biochemistry Graduate_  
-_Passionate about Data and Equity in the Workplace_  
 📧 Email: precious.obiekezie100@gmail.com
 📍 Region: Nigeria  
 
